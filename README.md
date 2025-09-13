@@ -1,1 +1,1 @@
-# 1st a day to celebrate.
+# 1st a day to celebrate
